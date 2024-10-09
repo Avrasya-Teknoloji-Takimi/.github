@@ -1,3 +1,2 @@
-# YÜKLENİYOR
-## asdas
+# YÜKLENİYOR ...
 ![image_processing20210313-21098-191qap2](https://github.com/user-attachments/assets/3a0667e4-6dfb-44ad-83ec-705bec06428a)
